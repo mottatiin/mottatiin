@@ -1,0 +1,6 @@
+- 👋 Oii, Meu nome é Luigi Porem sou mais chamado de (Mottatiin)
+- 👀 Meu conteudo é sobre programação !
+- 🌱 Atualmente estou aprendendo a programar cada vez mais
+- 💞️ Estou procurando colaborar em Modelagem e Scripts.
+- 📫 Entre no discord de minha comunidade :
+- https://discord.gg/RycnubaaHC
